@@ -10,7 +10,7 @@
 8.Quem foi o criador
 
 
-falamos sobre isso meio que um resumodo falando como é a importancia da agricultura sustendavel ccmo sera que seria se n tivesse mais agricultura
+falamos sobre isso meio que um resumodo falando como é a importancia da agricultura sustendavel ccmo sera que seria se n tivesse mais agricultura🌳🍃
 
 
 
